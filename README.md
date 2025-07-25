@@ -1,4 +1,4 @@
-i love KMITL fr ong type shit
+i love KMITL fr ong type shi
 
 
 
